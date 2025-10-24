@@ -1,2 +1,2 @@
 # Sui_nft
-SUI WOKE
+SUI WORKSHOP
